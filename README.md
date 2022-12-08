@@ -1,10 +1,4 @@
-
-
-My name is Jc Tarbert. I studied Computer Information Systems and graduated with a 3.97 GPA. 
-Since graduation I have become a Freelance IT Architect. 
-
-I offer business solutions to customers as well as IT consulting services, and product support. 
-I would love to have a chat.
+Early Highschool Graduate, Data Privacy Advocate
 
 Feel Free to try my free game, Cucumber Jump! 
                         
